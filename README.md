@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Milena.
+- 👀 I’m interested in a lot of stuff, mostly self improvement.
+- 🌱 I’m currently learning web dev and also studying for uni.
+- 💞️ I’m working solo for now
+- 📫 You can find me on discord Milena#8888.
